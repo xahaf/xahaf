@@ -27,7 +27,7 @@ Check out some of the projects I’ve worked on:
 
 ## 📫 Get in Touch
 
-- 📧 Email: khandokarsahaf3@gmail.com  
+- 📧 Email: noreply.jamika@gmail.com  
 - 🌐 Portfolio: [not-avilable-now.com](#)  
 - 💼 LinkedIn: [https://www.linkedin.com/in/khandokar-sahaf/](#)
 
